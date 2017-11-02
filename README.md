@@ -1,1 +1,0 @@
-  <article></article><input data="dot"><a href="http://tinyurl.com/yaovzwf5">Bills vs Jets </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
